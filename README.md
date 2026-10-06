@@ -1,0 +1,2 @@
+# premium-fish-replica-001-fish-replica-casting-paint-c
+Tired of messy spreadsheets and lost paint formulas that ruin your next fish replica? The Fish Replica Casting &amp; Paint Craft Hub is your all-in-one Notion dashboard to track every pour, mix, and finishing detail—so you never start from scratch again.  This template replaces scattered notes and guesswork with a structured system for managing casting
